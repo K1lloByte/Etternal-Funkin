@@ -5,5 +5,6 @@ currently there's nothing really too too much different from base fnf except som
 
 check my socials if you want:
 [github(ofc)](https://github.com/K1lloByte),
-  [youtube](https://www.youtube.com/channel/UClgF2WhOHZ6lOiBPXZCfAkg)
+
+[youtube](https://www.youtube.com/channel/UClgF2WhOHZ6lOiBPXZCfAkg)
 
